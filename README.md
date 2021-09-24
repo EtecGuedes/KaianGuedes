@@ -1,0 +1,5 @@
+- 👋 Hi, I’m potato
+- 👀 I’m interested in potato
+- 🌱 I’m currently learning potato
+- 💞️ I’m looking to collaborate on potato
+- 📫 How to reach me potato
